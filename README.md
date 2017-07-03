@@ -1,0 +1,2 @@
+# Health
+Topics regarding health, such as detoxifying agents, food, nutrition, wellness, medicinal herbs, ailments/treatments, physical work (massage, physical therapy, chiropractic work), hydrotherapy, oral hygiene, calcification (arthritis, kidney stones, pineal gland), modern medicine, ancient medicine, crystal healing, mold/fungi/viruses/bacteria (air quality/ventilation), magnetism, environment, global positioning, biome, survival 
